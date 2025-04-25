@@ -42,7 +42,7 @@ Uninstalling the app will delete all associated data.
 
 If you have any questions, feel free to contact:
 
-**Email:** [you@example.com]
+**Email:** collin@landfallphoenix.com
 
 ---
 
