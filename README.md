@@ -1,5 +1,6 @@
 
-![IMG_3146](https://github.com/user-attachments/assets/3ce3624f-038c-463a-a973-9570b5f48be5)
+![IMG_3146-transformed](https://github.com/user-attachments/assets/8b0def10-4ff2-44d4-81c1-d90a242c6043)
+
 
 
 A brutally effective 2-week rotating push-up program designed to improve your max pushups.
